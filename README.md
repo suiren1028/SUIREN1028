@@ -1,4 +1,8 @@
-## Hi there 👋
+##自己紹介
+
+1年IT　古藤蓮です
+
+窯玉こそ至高
 
 <!--
 **suiren1028/SUIREN1028** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
