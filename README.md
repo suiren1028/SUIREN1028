@@ -4,6 +4,8 @@
 
 窯玉こそ至高
 
+原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神原神
+
 <!--
 **suiren1028/SUIREN1028** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
